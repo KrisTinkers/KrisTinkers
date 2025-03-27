@@ -2,6 +2,6 @@
 - 👀 I’m interested in accessible design
 - 🌱 I’m currently learning about Particle Physics
 - 💞️ I’m looking to collaborate on colour theory
-- 📫 How to reach me krisd.ca
+- 📫 How to reach me KrisTinkers.com
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: Opacarophiles are people who enjoy sunrises/sunsets; for them, viewing one causes the release of Dopamine!
